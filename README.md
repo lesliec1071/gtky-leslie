@@ -9,3 +9,6 @@ I don't have a favorite color.
 I don't have any favorite artists.
 
 On the weekends I like to sleep in. 
+
+
+hiii these are my changes: YES YOU DO HAVE FAVORITE ARTISTS??
